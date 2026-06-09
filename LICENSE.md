@@ -1,4 +1,4 @@
-#  
+#  updated Scripts for natural disaster survival is the best natural disaster survival Script, featuring unlimited stamina and no clip. Safe and
 
 
 
